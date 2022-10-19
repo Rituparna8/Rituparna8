@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Rituparna.
+- 👀 I’m interested in dogs.
+- 🌱 I’m currently learning kugfu.
+- 💞️ I’m looking to collaborate on sleeping.
+- 📫 How to reach me - use a space ship.
